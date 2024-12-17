@@ -15,6 +15,8 @@ I would really appreciate if you visited the links up there + down here is some 
 * Please don't send me friend requests out of nowhere before talking to me first...
 * (Will add more things here later if i think it's needed)
 
+CHERRIE DNI /j
+
 ![div 2](https://64.media.tumblr.com/074ecfcc2af298bdc433b15fb262fd4e/eafe2f590438eee2-66/s400x600/16ad6069d4441527dc6dec95722f7f6b34fae93b.gifv)
 
 <ins>STAMP SPOT!!!</ins>
