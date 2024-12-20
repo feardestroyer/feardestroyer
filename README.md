@@ -11,6 +11,7 @@ I would really appreciate if you visited the links up there + down here is some 
 <ins>PONY TOWN BOUNDARIES</ins>
 
 * C+H is okay! I would prefer if you asked first if we aren't friends, though
+* I'd really prefer that if you want to talk to me, please whisper... If i'm not with my friends, I'm almost always AFK so i might not see if you send me something outside of whispers
 * I don't bite!!! Please don't be afraid to shoot me a whisper or approach me! Just be aware of the fact that I'm very shy and awkward around people I don't know
 * Please don't send me friend requests out of nowhere before talking to me first...
 * I block most (not all) spam followers! Nothing against it, i'm just not a fan
